@@ -2,5 +2,4 @@
 - 👀 I’m interested in Civil Engineering
 - 🌱 I’m currently learning Autocad and Matlab
 - 💞️ I’m looking to collaborate on personal or group projects
-- 📫 How to reach me my email is erindasella@gmail.com
 - 😄 Pronouns: She/Her
